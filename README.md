@@ -12,7 +12,6 @@
 
 ## ☾── .✦ General: I'll hide freely, though I don't tend to do so without a reason. I don't mind rp but NO erp. I'm not a huge fan of crowds/parties and I'm not the best at initiating conversation and I tend to be AFK quite a bit but my whispers are always open!
 
-
 ## ☾── .✦ Main Skins: Yae Miko (Genshin Impact), V (Murder Drones), Vaggie (Hazbin Hotel)  
 
 ## ☾── .✦ BYI/DNI: Same basic DNI criteria, minors DNI!
