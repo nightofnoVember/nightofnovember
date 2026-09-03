@@ -1,7 +1,7 @@
 ## ✮ ⋆ ˚｡𖦹 ⋆｡°✩ V-She/Her-23-Scorpio ✮ ⋆ ˚｡𖦹 ⋆｡°✩
 <img width="600" height="250" alt="OGC" src="https://github.com/user-attachments/assets/b1d26467-4f9c-4b12-b0ef-517465f1fc08" />
 
-## ☁︎── .✦ General: I'm a mess of ADHD, anxiety, depression, and likely autism. I also work Monday-Friday so I can get quite busy. I'm taken by JJ, an adorable dork. Feel free to sign my linked atabook as well!
+## ☁︎── .✦ General: I'm a mess of ADHD, anxiety, depression, and likely autism. I also work Monday-Friday so I can get quite busy. I'm taken by JJ, who's an adorable dork. Feel free to sign my linked atabook as well!
 
 ## ☁︎── .✦ Interests: Genshin Impact, Murder Drones, Hazbin Hotel/Helluva Boss, Littlest Pet Shop, Webkinz, Wednesday, Pokemon, Stardew Valley...there's definitely many more, these are just the main ones.
 
