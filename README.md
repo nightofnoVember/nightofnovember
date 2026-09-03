@@ -3,7 +3,7 @@
 
 ## ☁︎── .✦ General: I'm a mess of ADHD, anxiety, depression, and likely autism. I also work Monday-Friday so I can get quite busy. I'm taken by JJ, who's an adorable dork. Feel free to sign my linked atabook as well!
 
-## ☁︎── .✦ Interests: Genshin Impact, Murder Drones, Hazbin Hotel/Helluva Boss, Littlest Pet Shop, Webkinz, Wednesday, Pokemon, Stardew Valley...there's definitely many more, these are just the main ones.
+## ☁︎── .✦ Interests: Genshin Impact, Murder Drones, Hazbin Hotel/Helluva Boss, Littlest Pet Shop, Webkinz, Wednesday, Pokemon, Stardew Valley, My Little Pony...there's definitely many more, these are just the main ones.
 
 ## ☁︎── .✦ BYI/DNI: Basic DNI criteria, minors DNI! Please only interact if 18+.
 
